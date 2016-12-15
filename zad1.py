@@ -1,0 +1,1 @@
+#w canvasie narysuj choinke, przystroj,
